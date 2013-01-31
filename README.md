@@ -1,0 +1,1 @@
+Stories in their place is a book of blog posts I wrote between 2009 and 2013. I plan to release it as a print publication and e-book.
